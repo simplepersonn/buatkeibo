@@ -1,2 +1,2 @@
-# halosayang
-khusus kamu
+# kado
+-
